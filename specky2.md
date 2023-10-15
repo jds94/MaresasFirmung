@@ -1,5 +1,3 @@
-# Zur Firmung alles Gute!
-
 ![Bild](./Foto.jpeg)
 
 Liebe Maresa,
