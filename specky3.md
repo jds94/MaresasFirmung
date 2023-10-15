@@ -5,7 +5,7 @@ Liebe Maresa,
 herzlichen Glückwunsch zur Firmung.<br/>
 Hoffentlich sehen wir uns bald wieder.
 
-  ![Sprachnachricht](./Test.mp3)
+  ![Sprachnachricht](/Test.mp3)
 
 
 Deine Großcousine Edda
