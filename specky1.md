@@ -1,3 +1,3 @@
 # Specky1
 
-  ![BIld](./Foto.jpeg)
+  ![Bild](./Foto.jpeg)
