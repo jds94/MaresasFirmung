@@ -1,4 +1,4 @@
-![Bild](./Firmung.jpg)
+![Bild](./Firmung.png)
 
 Liebe Maresa,
 
