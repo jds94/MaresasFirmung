@@ -2,6 +2,7 @@
 
 Liebe Maresa,
 
-herzlichen Glückwunsch zur Firmung wünscht dir 
+herzlichen Glückwunsch zur Firmung.
+Hoffentlich sehen wir uns bald wieder.
 
-Edda
+Deine Großcousine Edda
